@@ -11,6 +11,4 @@ Duration: **2 Days**
 OR
 
 <a href="https://udemy.com/user/vinod-197">
-You can check out the same courses on Udemy for a much higher price!</a>
-
-😎
+You can check out the same courses on Udemy for a much higher price!</a> 😎
